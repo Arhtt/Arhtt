@@ -1,4 +1,4 @@
 ### Olá seja Bem-vindo(a) ao meu perfil!!👋
 Meu nome é Arthur 😄
 
-![cat-kiss](https://github.com/Arhtt/Arhtt/assets/132673982/8e0d501e-a5e3-4e04-a539-05e87acbd5f5)
+![cat-typing](https://github.com/Arhtt/Arhtt/assets/132673982/9b24882e-e51c-4559-8fab-ba772bac2b73)
